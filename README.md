@@ -55,4 +55,4 @@ List02
 4.TOEFL词汇: https://pan.baidu.com/s/1zaCoTwioUU_BGdVg3dJPTw 提取码: jj4q  
 5.IELTS词汇: https://pan.baidu.com/s/1XITuXiP3canREQ5UKy2p3g 提取码: cjzr  
 6.专八英语词汇: https://pan.baidu.com/s/1I1ZHjNtwCYl969KyvGMMHg 提取码: c3d2  
-7.考研词汇: https://pan.baidu.com/s/145fTsrTaCRurwWUdk-B0Mw 提取码: qne9  
+7.考研词汇: https://pan.baidu.com/s/1axNN8smraEOGB89JcdPtXg 提取码: vxvz  
