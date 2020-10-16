@@ -49,10 +49,10 @@ List02
 
 ## 免费学习资料
 ### 英语单词
-1.大学英语四级词汇  
-2.大学英语六级词汇 
-3.GRE词汇
-4.TOEFL词汇
-5.IELTS词汇
-6.专八英语词汇
-7.考研词汇
+1.大学英语四级词汇: https://pan.baidu.com/s/1Few6p63Q0ejRNEIWV0R4_w 提取码: 6mn9  
+2.大学英语六级词汇: https://pan.baidu.com/s/1m9vUgMBShR6yOaWM-PezvQ 提取码: 2gdk  
+3.GRE词汇: https://pan.baidu.com/s/1dga9w1Py9G7_pNy8lVH9Xg 提取码: pw2v    
+4.TOEFL词汇: https://pan.baidu.com/s/1zaCoTwioUU_BGdVg3dJPTw 提取码: jj4q  
+5.IELTS词汇: https://pan.baidu.com/s/1XITuXiP3canREQ5UKy2p3g 提取码: cjzr  
+6.专八英语词汇: https://pan.baidu.com/s/1I1ZHjNtwCYl969KyvGMMHg 提取码: c3d2  
+7.考研词汇: https://pan.baidu.com/s/145fTsrTaCRurwWUdk-B0Mw 提取码: qne9  
